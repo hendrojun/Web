@@ -1,3 +1,3 @@
 # Web
 
-pembelajaran dari kelas unpas aka padika ^^
+pembelajaran dari kelas web unpas aka padika ^^
